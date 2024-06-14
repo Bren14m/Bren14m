@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil💗
+### ★彡[ʙᴏᴀꜱ ᴠɪɴᴅᴀꜱ ᴀᴏ ᴍᴇᴜ ᴘᴇʀꜰɪʟ💗]彡★
  
 Meu nome é Brenda Bernardino
 
